@@ -20,7 +20,7 @@
 - [LinkedIn](https://www.linkedin.com/in/davidagray/)
 - [Blog](https://yesdavidgray.com)
 - [Reddit](https://www.reddit.com/user/DaveOnEleven)
-
+hell0 world from ethiopia
 ---
 
 ### Description
